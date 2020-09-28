@@ -15,7 +15,7 @@
 - 🌱 I’m currently learning Javas cirpt React Mongo DB what ever about Front-end keep learning
 - 🤔 I’m looking for cola cola and pepsi pepsi money money
 - 💬 Ask me about you can ask me about game and some code
-- 📫 How to reach me: Email > wongsapatup@gmail.com
+- 📫 How to reach me: via E-mail : wongsapatup@gmail.com
 - 😄 Pronouns: HOLY Cheese!!
 - ⚡ Fun fact: I'm fun while coding and drank colo and pepsi mixed
 
