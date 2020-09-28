@@ -1,4 +1,4 @@
-## Hi I'm UpZx Dark Night mare :wave::wave:
+## Hi I'm UpZx Dark Night mare Front-end dev :wave::wave:
 ## Noob programmer from thailand
 ✨ From Thailand แดนรถติดชีวิตติดไฟแดงข้านั้นต้องการโคล่า และ แช่น้ำอุ่น ✨ 
 
@@ -16,6 +16,14 @@
 - 🤔 I’m looking for cola cola and pepsi pepsi money money
 - 💬 Ask me about you can ask me about game and some code
 - 📫 How to reach me: via E-mail : wongsapatup@gmail.com
-- 😄 Pronouns: HOLY Cheese!!
+- 😄 Pronouns: he/him say "HOLY Cheese!!"
 - ⚡ Fun fact: I'm fun while coding and drank colo and pepsi mixed
+## Skills List📝
+:heavy_check_mark: Java
+
+:heavy_check_mark: Javascript, React.js ,React native, React hook
+
+:heavy_check_mark: HTML/CSS/PHP
+
+:heavy_check_mark: SQL/MONGODB
 
