@@ -11,12 +11,12 @@
 --:point_right: Cola Cola Cola น้ำอัดลม น้ำหวาน ชานม ช็อคโกแกต ถึง Fat ฉันจะยังกินต่อ:innocent:
 
 ✨ My Info ✨ 
-- 🔭 I’m currently working on Some where in factory of thailand 
+- 🔭 I’m currently working on Some where in factory of thailand
 - 🌱 I’m currently learning Javas cirpt React Mongo DB what ever about Front-end keep learning
 - 🤔 I’m looking for cola cola and pepsi pepsi money money
-- 💬 Ask me about you can ask me about game and some code
+- 💬 Ask me about : you can ask me about game and some code
 - 📫 How to reach me: via E-mail : wongsapatup@gmail.com
-- 😄 Pronouns: he/him say "HOLY Cheese!!"
+- 😄 My Pronouns:  say "HOLY Cheese!!"
 - ⚡ Fun fact: I'm fun while coding and drank colo and pepsi mixed
 ## Skills List📝
 :heavy_check_mark: Java
