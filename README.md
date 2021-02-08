@@ -10,6 +10,8 @@
 
 --:point_right: Cola Cola Cola น้ำอัดลม น้ำหวาน ชานม ช็อคโกแกต ถึง Fat ฉันจะยังกินต่อ:innocent:
 
+<img src="https://s11.favim.com/orig/7/769/7695/76958/anime-girl-anime-makoto-shinkai-Favim.com-7695846.gif">
+
 ✨ My Info ✨ 
 - 🔭 I’m currently working on Some where in factory of thailand
 - 🌱 I’m currently learning Javas cirpt React Mongo DB what ever about Front-end keep learning
