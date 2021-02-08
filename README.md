@@ -1,6 +1,6 @@
 ## Hi I'm UpZx Dark Night mare  :wave::wave:
 ## Noob programmer 
-<center><img src="https://f.ptcdn.info/959/033/000/1438283394-kosakiiiib-o.gif" alt="NISEKOI ONODERA NUMBA1"></center>
+<center><img src="https://steamuserimages-a.akamaihd.net/ugc/158028391342965631/D07A0AA7DC01DDE6AC1213F93FF4BB5F14A50FC7/"></center>
 
 :point_down::point_down: Here my joke info :point_down::point_down:
 
