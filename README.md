@@ -1,5 +1,5 @@
-## Hi I'm UpZx Dark Night mare Front-end dev :wave::wave:
-## Noob programmer from thailand
+## Hi I'm UpZx Dark Night mare  :wave::wave:
+## Noob programmer 
 ✨ From Thailand แดนรถติดชีวิตติดไฟแดงข้านั้นต้องการโคล่า และ แช่น้ำอุ่น ✨ 
 
 :point_down::point_down: Here my joke info :point_down::point_down:
