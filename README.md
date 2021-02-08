@@ -5,11 +5,8 @@
 ✨ From Thailand แดนรถติดชีวิตติดไฟแดงข้านั้นต้องการโคล่า และ แช่น้ำอุ่น ✨ 
 <br>
 :point_down::point_down: Here my joke info :point_down::point_down:
-<br>
 --:point_right: Currently programmer .net and web development at somewhere :office::city_sunrise: 
-
 --:point_right: just beginner :beginner: of coding i must to learn alot of tun for upgrade my  :page_with_curl: skills :chart_with_upwards_trend:
-
 --:point_right: Cola Cola Cola น้ำอัดลม น้ำหวาน ชานม ช็อคโกแกต ถึง Fat ฉันจะยังกินต่อ:innocent:
 
 <img src="https://s11.favim.com/orig/7/769/7695/76958/anime-girl-anime-makoto-shinkai-Favim.com-7695846.gif">
