@@ -1,7 +1,7 @@
 ## Hi I'm UpZx Dark Night mare  :wave::wave:
 ## Noob programmer 
+<center><img src="https://pa1.narvii.com/6713/5b9c886efe7733c10c807ce35e8fd35382a7ebeb_hq.gif"></center>
 ✨ From Thailand แดนรถติดชีวิตติดไฟแดงข้านั้นต้องการโคล่า และ แช่น้ำอุ่น ✨ 
-
 :point_down::point_down: Here my joke info :point_down::point_down:
 
 --:point_right: Currently programmer .net and web development at somewhere :office::city_sunrise: 
