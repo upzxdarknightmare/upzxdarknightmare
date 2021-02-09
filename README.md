@@ -8,7 +8,7 @@
 
 --:point_right: Noob programmer  :page_with_curl: skills still suck :chart_with_upwards_trend:
 
---:point_right: Cola Cola Cola น้ำอัดลม น้ำหวาน ชานม ช็อคโกแกต ถึง Fat ฉันจะยังกินต่อ:innocent:
+--:point_right: Cola Cola Cola น้ำอัดลม น้ำหวาน ชานม ช็อคโกแกต :innocent:
 
 <img src="https://s11.favim.com/orig/7/769/7695/76958/anime-girl-anime-makoto-shinkai-Favim.com-7695846.gif"><img src="https://media.tenor.com/images/2c06d2b5a54f9dca27171b0e5b8855fd/tenor.gif" height="274" width="300">
 
