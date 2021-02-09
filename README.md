@@ -6,7 +6,7 @@
 
 --:point_right: Currently programmer .net and web development at somewhere :office::city_sunrise: 
 
---:point_right: just beginner :beginner: of coding i must to learn alot of tun for upgrade my  :page_with_curl: skills :chart_with_upwards_trend:
+--:point_right: Noob programmer  :page_with_curl: skills still suck :chart_with_upwards_trend:
 
 --:point_right: Cola Cola Cola น้ำอัดลม น้ำหวาน ชานม ช็อคโกแกต ถึง Fat ฉันจะยังกินต่อ:innocent:
 
