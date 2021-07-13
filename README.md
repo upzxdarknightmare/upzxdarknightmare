@@ -1,5 +1,7 @@
 ## Hi I'm UpZx Dark Night mare  :wave::wave:
 ## Noob programmer 
+## BAD ASS GIRL DAMN COOL
+<img src="https://safebooru.org//samples/3286/sample_616fa52d7431afa384d863f76bd3c076575d553f.jpg?3416733">
 <center><img src="https://steamuserimages-a.akamaihd.net/ugc/158028391342965631/D07A0AA7DC01DDE6AC1213F93FF4BB5F14A50FC7/"></center>
 
 :point_down::point_down: Here my joke info :point_down::point_down:
