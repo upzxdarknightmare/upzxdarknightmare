@@ -1,4 +1,3 @@
-## Hi I'm UpZx Dark Night mare  :wave::wave:
 ## Noob programmer 
 ## BAD ASS GIRL DAMN COOL
 
