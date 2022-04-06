@@ -1,16 +1,13 @@
 ## Hi I'm UpZx Dark Night mare  :wave::wave:
 ## Noob programmer 
 ## BAD ASS GIRL DAMN COOL
-<img src="https://safebooru.org//samples/3286/sample_616fa52d7431afa384d863f76bd3c076575d553f.jpg?3416733">
-<center><img src="https://steamuserimages-a.akamaihd.net/ugc/158028391342965631/D07A0AA7DC01DDE6AC1213F93FF4BB5F14A50FC7/"></center>
+
 
 :point_down::point_down: Here my joke info :point_down::point_down:
 
 --:point_right: Currently programmer .net and web development at somewhere :office::city_sunrise: 
 
 --:point_right: Noob programmer  :page_with_curl: skills still suck :chart_with_upwards_trend:
-
---:point_right: Cola Cola Cola น้ำอัดลม น้ำหวาน ชานม ช็อคโกแกต :innocent:
 
 <img src="https://s11.favim.com/orig/7/769/7695/76958/anime-girl-anime-makoto-shinkai-Favim.com-7695846.gif"><img src="https://media.tenor.com/images/2c06d2b5a54f9dca27171b0e5b8855fd/tenor.gif" height="274" width="300">
 
